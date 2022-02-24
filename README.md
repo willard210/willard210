@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @willard210
+- 👀 I’m interested in your mother
+- 🌱 I’m currently learning how to do your mother
+- 💞️ I’m looking to collaborate on your mother
+- 📫 How to reach me email 270058764@gmail.com
+- 💭 im thinking on what to add to my pf if you have an idea email me and ill add it! (it will take me awhile im new to code)
